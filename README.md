@@ -56,8 +56,7 @@ Estoy en búsqueda de **oportunidades desafiantes en desarrollo mobile o web**, 
 
 - 📩 chicotematias@gmail.com
 - 💼 [LinkedIn](https://www.linkedin.com/in/matias-chicote/)
-- 📲 [WhatsApp](https://wa.me/5493624594954) *(ejemplo, modificá el número si querés)*
-
+- 📲 [WhatsApp](https://wa.me/5493624594954) 
 ---
 
 ### ✨ Extras
